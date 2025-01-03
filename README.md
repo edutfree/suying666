@@ -1,12 +1,12 @@
-# 速鹰666官网登录入口2024最新地址 + 优惠码
+# 速鹰666官网登录入口2025最新地址 + 优惠码
 
 速鹰666跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
 永久官网：[suying666.com](https://xuv.cc/out/s666)
 
-地址1：[https://sy95.xyz](https://sy95.xyz/auth/register?code=WSr5)
+地址1：[https://suying148.xyz](https://suying148.xyz/auth/register?code=WSr5)
 
-地址2：[https://sy69.xyz](https://sy69.xyz/auth/register?code=WSr5)
+地址2：[https://suying159.xyz](https://suying159.xyz/auth/register?code=WSr5)
 
 ## 简介
 
@@ -18,7 +18,7 @@
 
 【优惠活动】
 
-速鹰666机场 618特惠包年7折优惠代码：[SS6188](https://xuv.cc/out/s666)
+速鹰666机场 新年包年7折优惠代码：[SUY9](https://xuv.cc/out/s666)
 
 
 ## 速鹰666特色
