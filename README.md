@@ -4,9 +4,9 @@
 
 永久官网：[suying666.com](https://xuv.cc/out/s666)
 
-地址1：[https://suying148.xyz](https://suying148.xyz/auth/register?code=WSr5)
+地址1：[https://suying92.xyz](https://suying92.xyz/auth/register?code=WSr5)
 
-地址2：[https://suying159.xyz](https://suying159.xyz/auth/register?code=WSr5)
+地址2：[https://suying59.xyz](https://suying59.xyz/auth/register?code=WSr5)
 
 ## 简介
 
